@@ -1,1 +1,1 @@
-ya, exerc
+ya, exercícios
